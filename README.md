@@ -1,1 +1,0 @@
-# G.S.S.S.Tharola
